@@ -1,3 +1,2 @@
-# Happy birthday Sheetal
-# Suigeneris20.github.io
+# Happy birthday S
 Fur Dich
